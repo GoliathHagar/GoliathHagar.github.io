@@ -1,1 +1,0 @@
-# GoliathHagar.github.io
